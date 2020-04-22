@@ -23,3 +23,7 @@ Animation editor
 10: https://kwaksh2319.tistory.com/153?category=348370
 
 11: https://kwaksh2319.tistory.com/154?category=348370
+
+12:https://kwaksh2319.tistory.com/155
+
+13:https://kwaksh2319.tistory.com/156
