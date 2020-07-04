@@ -80,3 +80,6 @@ Animation editor
 
 39:https://kwaksh2319.tistory.com/201
 
+40:https://kwaksh2319.tistory.com/204
+
+41:https://kwaksh2319.tistory.com/205
